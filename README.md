@@ -9,3 +9,7 @@
 1. 전야제 참가!!
 
 ![image](https://github.com/gdsc-kaist/chinmokjo-6/assets/71117066/2f943195-0ffc-4fa1-99b3-76ffae3271c5)
+
+2. 푸드트럭 🍗
+
+![image](https://github.com/gdsc-kaist/chinmokjo-6/assets/71117066/b9de5bce-3a96-4979-9848-bd90a7d6a2b1)
